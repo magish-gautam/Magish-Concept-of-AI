@@ -1,1 +1,0 @@
-# Magish-Concept-of-AI
